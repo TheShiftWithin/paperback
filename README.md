@@ -1,0 +1,4 @@
+paperback
+=========
+
+You cannot GIVE what you do not HAVE.  We all crave deeper love relationships, happiness, a more peaceful world…  but how can we GIVE anything to these ideals unless we understand  the core principles that can only come from within?   If we are unable to obtain what we desire from life,  it is purely because we do not yet know how to create the very experience we desire. 	 The focus of this book is on what I believe  to be the pinnacle experience of life – LOVE.  When you strip everything else away,  it’s what we all ultimately desire.  This compassionate and insightful guide will help you to  develop virtuous relationships with yourself and others,  and to gain emotional freedom through self-awareness and introspection,  which are the fundamental skills for every person’s life journey.  As within, as without, as above, so below.
